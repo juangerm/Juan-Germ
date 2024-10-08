@@ -1,1 +1,1 @@
-# ¡Hola, soy [ Juan Benitez ]!
+# ¡Hola, soy Juan Benitez!
